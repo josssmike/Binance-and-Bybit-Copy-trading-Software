@@ -1,0 +1,1 @@
+# Binance-and-Bybit-Copy-trading-Software
